@@ -20,4 +20,11 @@ This devotional record is based on the "[Bible In One Year](https://www.bibleino
 15. **John 7:45-8:11** There is no condemnation for those who are in Jesus. Jesus does not condone sin but He pardons the sinner and asks us to leave our life of sin. When we judge, accuse and condemn others, we project on to them what we refuse to see in ourselves. 
 16. **John 8:12-30** Our aim in life should be to please God. The model for our lives is to be with God and do everything with God and to please God.
 17. **John 8:31-59** To know Jesus is to know the Truth and to know God. Everyone who sins is a slave to sin. In Jesus we are free from shame, addiction and fear. We are free to know God, to be ourselves and to love God and others.
-18. **John 9:1-34** TODO: https://www.bibleinoneyear.org/bioy/commentary/3302 
+18. **John 9:1-34** Jesus is our healer. Suffering is not necessarily the punishment for a particular sin, but a result of sin entering the world. Testimony of healing is powerful.
+19. **John 9:35-10:21** Jesus came that we might enjoy life in abundance. Jesus is the door to the knowledge of God and we should listen to His voice. In Him we find purpose, fulfilment, peace and forgiveness.
+20. **John 10:22-42** Jesus and the Father are one. When we believe, know and follow Jesus we have eternal life from God.
+21. **John 11:1-44** Jesus has defeated death. The ressurection of Lazarus is a foretaste of that day when the dead shall rise to meet our Savior.
+22. **John 11:45-12:11** Jesus brings peace in the mist of adversity. God used event the worst plots to bring about good. We can live in peace, knowing that God works for the good of those who live Him.
+23. **John 12:12-36** Jesus is our King. Jesus defeated Satan not by military power, but by self-sacrifice. As King, we should serve Him with all our hearts.
+24. **John 12:37-13:17** Jesus came to show us how to live a life of love, service, humility and forgiveness.
+25. TODO https://www.bibleinoneyear.org/bioy/commentary/3309
