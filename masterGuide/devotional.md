@@ -27,4 +27,14 @@ This devotional record is based on the "[Bible In One Year](https://www.bibleino
 22. **John 11:45-12:11** Jesus brings peace in the mist of adversity. God used event the worst plots to bring about good. We can live in peace, knowing that God works for the good of those who live Him.
 23. **John 12:12-36** Jesus is our King. Jesus defeated Satan not by military power, but by self-sacrifice. As King, we should serve Him with all our hearts.
 24. **John 12:37-13:17** Jesus came to show us how to live a life of love, service, humility and forgiveness.
-25. TODO https://www.bibleinoneyear.org/bioy/commentary/3309
+25. **John 13:18-38** Jesus wants us to love one another, regardless of our differences. Jesus showed love to those close to Him (like John), to those who had a different vision from Him (like Peter) and even those who hated and betrayed Him (like Judas).
+26. **John 14:1-31** Jesus wants us to have peace in our heart. God has good plans for us, Jesus is coming back to redeem us. He sends His Spirit to be with us. He will answer our prayers and work thru us.
+27. **John 15:1-16:4** Jesus treats us like friends, not servants. We need to cultivate a growing, personal relationship with Jesus, daily. This relationship produces love to others but will also result in hate and persecution from the world.
+28. **John 16:5-17:5** There is power in the name of Jesus and this is why we should pray 'in the name of Jesus'. The Holy Spirit is our helper, and will convict us of our sin and guide, sustain and strengthen us to become more like Jesus. The result is joy, love and peace.
+29. **John 17:6-26** Jesus prayed for you and me and all who one day would believe in Him. When we are one with the Father in Spirit, the world will believe.
+30. **John 18:1-24** Jesus gives us courage and wisdom to know how to respond with dignity and grace when we come under attack. We need to trust that God is always in control of a situation.
+31. **John 18:25-40** Jesus helps us when we fail. Jesus takes the burden of our failures, forgives us and gives us second chances. With Jesus, failure is never final.
+32. **John 19:1-27** Jesus helps us during our trials and sorrows. The greatest triumphs in our lives sometimes occur when the circumstances seem to be hardest.
+33. **John 19:28-20:9** Jesus died and was ressurected out of love for us. The power of God is available to us to restore out lives as well.
+34. **John 20:10-31** The ressurection of Jesus fill us with awe, amazement, joy, peace, purpose, power, respect and reverence.
+35. **John 21:1-25** Jesus calls us to serve Him out of love, expressing our love for Him by loving and caring for other people.
