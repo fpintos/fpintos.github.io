@@ -20,17 +20,14 @@ One might not be able to tell exactly when conversion happens. The experience ch
 
 The condition of eternal life is now the same as it has ever been - perfect righteouness and obedience to the law of God. Before the fall it was possible for Adam to form a righteous character, but once sin was introduced in the human nature we cannot make ourselves righteous. But Christ has made a way of escape. He lived on Earth amid the same trials and temptations such as we and yet He did not sin. He died for us and gave us His righteouness. Christ's character stands in place of our character and we are accepted before God as if we had not sinned. Christ changes the heart and as long as we maintain this connection by faith He will work in us according to His pleasure.
 
+This transformation of the heart is then reflected in the life of the believer in the form of good, self-sacrificial works, generosity and obedience. These strengthen the spirit of beneficence in our heart and align us closer to the Redeemer of the world. The only way to grow in grace is to be disinterestedly doing the very work which Christ has enjoined upon us- to engage, to the extent of our ability, in helping and blessing those who need the help we can give them. Since the world rejected the Master, when we work for the Master we should also expect opposition and trials. Those should be met with careful study of the Bible and communion with God thru prayer. Prayer is the key in the hand of faith to unlock heaven’s storehouse, where are treasured the boundless resources of Omnipotence.
 
+For our prayers to be answered, we need to feel the need of Him, we should be penitent and contrite, not keeping iniquity in our heart, we should have faith that Jesus will answer our prayers, not by our own merits, but by His and we should forgive others, if we want to be forgived. And even when an answer seems to delay, we should cling to the promisse that our prayers are heard and that God is too wise to err, and too good to withhold any good thing from them that walk uprightly. To claim that prayer will always be answered in the very way and for the particular thing that we desire, is presumption. Prayer should be a constant in our life.
 
+As it nears its conclusion, Steps to Crist addresses what to do when we have doubts. God never asks us to believe, without giving sufficient evidence upon which to base our faith. His existence, His character, the truthfulness of His word, are all established by testimony that appeals to our reason; and this testimony is abundant. Yet God has never removed the possibility of doubt. Our faith must rest upon evidence, not demonstration. Those who wish to doubt will have opportunity; while those who really desire to know the truth will find plenty of evidence on which to rest their faith.
 
+The book ends reminding us that in this life we will go thru difficulties and sorrows but that we should cultivate a grateful heart and not dwell in the bad memories. It is not wise to gather together all the unpleasant recollections of a past life,—its iniquities and disappointments,—to talk over them and mourn over them until we are overwhelmed with discouragement. A discouraged soul is filled with darkness, shutting out the light of God from his own soul and casting a shadow upon the pathway of others. When we seem to doubt God's love and distrust His promises we dishonor Him and grieve His Holy Spirit. All have trials; griefs hard to bear, temptations hard to resist. Do not tell your troubles to your fellow mortals, but carry everything to God in prayer. Make it a rule never to utter one word of doubt or discouragement. You can do much to brighten the life of others and strengthen their efforts, by words of hope and holy cheer.
 
+We are to remember that Jesus taugth that we should trust in God for our necessities, that we should deal with the problems of this life one day at a time. If God, the divine Artist, gives to the simple flowers that perish in a day their delicate and varied colors, how much greater care will He have for those who are created in His own image? This lesson of Christ's is a rebuke to the anxious thought, the perplexity and doubt, of the faithless heart.
 
-
-
-
-
-
-
-
-
-
+We will rejoice in the fact that the redeemed will be welcomed to the home that Jesus is preparing for them and by and by the gates of heaven will be thrown open to admit God's children, and from the lips of the King of glory the benediction will fall on their ears like richest music, “Come, ye blessed of My Father, inherit the kingdom prepared for you from the foundation of the world.” 
