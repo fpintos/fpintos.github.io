@@ -6,7 +6,9 @@ As a general rule, most of the kids are excited to participate in the club meeti
 
 In this group we've been fortunate that there has hardly been any kind of difficult trouble between them or with staff members, at least that has come to my attention.
 
-Nevertheless, it is possible to identify kids that fit the following patterns:
+It is also possible to identify kids that fit the following patterns:
+- The trouper: many of the kids in the club are ready to work and to help in whatever is neeed. They are usually the first ones to volunteer when help is requested and display an eager spirit to participate and complete the assigned tasks.
+ 
 - Inattentive: some of the younger kids have a tendency to lose interest in the main program and might become distracted by their own toughts or some prop or toy they might have with them. These usually require a gentle reminder to focus on the task at hand and maybe let go of the object of interest until the end of the meeting. 
 
 - Unenthusiastic: it goes without saying that none should expect *all* kids to be excited about *everything*, but there are some kids in the group that show a significant lesser level of enthusiasm as the others when new activities are introduced. They do seem to enjoy the activities once they start and they are present and active in the programs, and I've never seem them complaining about anything, but there is definetively a feeling that perhaps they might want to be doing something else.
