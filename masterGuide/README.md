@@ -6,3 +6,4 @@
 * [Education](education)
 * [Child Guidance](childGuidance)
 * [Pathfinders Interactions](interactions)
+* [Goals](goals)
