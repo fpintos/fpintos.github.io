@@ -21,3 +21,14 @@ Current goals in my personal life:
 - be an effective member of my team at work.
 - increase my level of physical fitness activities
 - above all, to grow closed to God, trusting in Him more than before.
+
+<style type="text/css">
+    @media print {
+        body > div > h1:first-child {
+        display: none;
+        }
+        .footer {
+        display: none;
+        }
+    }
+</style>

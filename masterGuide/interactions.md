@@ -18,3 +18,15 @@ It is also possible to identify kids that fit the following patterns:
 - The "loud" ones: in the group there is always some that are more expressive than the rest; the program provides times at which kids can express themselves and these will usually dominate the talk if we let them, but staff and the kids themselves seem to know to be fair and give different kids a chance to ask questions, request hymns, express ideas and so on.
 
 The willingness and eagerness displayed by the Pathfinders of the Sojourners club makes it very fulfilling to work with them.
+
+<style type="text/css">
+    @media print {
+        body { zoom: 0.75 }
+        body > div > h1:first-child {
+        display: none;
+        }
+        .footer {
+        display: none;
+        }
+    }
+</style>

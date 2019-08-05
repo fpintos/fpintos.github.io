@@ -39,3 +39,14 @@ This devotional record is based on the "[Bible In One Year](https://www.bibleino
 34. **John 20:10-31** The resurrection of Jesus fills us with awe, amazement, joy, peace, purpose, power, respect and reverence.
 35. **John 21:1-25** Jesus calls us to serve Him out of love, expressing our love for Him by loving and caring for other people.
 
+<style type="text/css">
+    @media print {
+        body { zoom: 0.75 }
+        body > div > h1:first-child {
+        display: none;
+        }
+        .footer {
+        display: none;
+        }
+    }
+</style>

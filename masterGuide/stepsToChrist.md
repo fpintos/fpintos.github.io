@@ -39,4 +39,14 @@ We will rejoice in the fact that the redeemed will be welcomed to the home that 
 
 The willingness and eagerness displayed by the Pathfinders of the Sojourners club makes it very fulfilling to work with them.
 
-
+<style type="text/css">
+    @media print {
+        body { zoom: 0.75 }
+        body > div > h1:first-child {
+        display: none;
+        }
+        .footer {
+        display: none;
+        }
+    }
+</style>

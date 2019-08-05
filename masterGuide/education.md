@@ -16,3 +16,13 @@ Great emphasis is also given to the role of parents in the education of their ch
 
 The common thread across many of Ellen's books is present in Education: we must seek to be more like Christ, growing in character and education in order to provide our best service to God and man, and from this point of view, all other concepts and ideas take shape.
 
+<style type="text/css">
+    @media print {
+        body > div > h1:first-child {
+        display: none;
+        }
+        .footer {
+        display: none;
+        }
+    }
+</style>
