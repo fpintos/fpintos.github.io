@@ -27,6 +27,12 @@
 .footer { 
     display:none; 
 }
+
+@media print {
+    .markdown-body {
+         margin: 0 !important
+    }
+}
 </style>
 # Micah
 
