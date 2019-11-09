@@ -90,6 +90,7 @@
 
 21. **(1pts)** According to Micah 1:16, The people are instructed to Enlarge their baldness like what animal?
     * An eagle 
+
 ## Chapter 2
 
 1. **(2pts)** According to Micah 2:1, Woe to those who do what two things?
@@ -136,6 +137,7 @@
 
 15. **(1pts)** According to Micah 2:13, Their king will pass before them, With who at their head."
     * the LORD
+
 ## Chapter 3
 
 1. **(2pts)** According to Micah 3:1, Who is told to hear now?
@@ -170,6 +172,7 @@
 
 11. **(6pts)** According to Micah 3:12, Fill in the blanks, "Therefore because of you ___ shall be plowed like a ___, Jerusalem shall become ___ of ___, And the ___ of the temple Like the bare hills of the ___."
     * Zion, field, heaps, ruins, mountain, forest
+
 ## Chapter 4
 
 1. **(6pts)** According to Micah 4:1, Fill in the blanks, "Now it shall come to pass in the ___ days That the ___ of the LORD's ___ Shall be established on the top of the ___, And shall be ___ above the hills; And peoples shall ___ to it.
@@ -220,9 +223,10 @@
 
 16. **(2pts)** According to Micah 4:13, Arise and thresh, O daughter of Zion; For I will make your horn and hooves of what two materials.
     * iron, bronze
+
 ## Chapter 5
 
-1. **(2pts)** According to Micah 5:1, With what and where will they strike the judge of Isreal?
+1. **(2pts)** According to Micah 5:1, With what and where will they strike the judge of Israel?
     * with a rod on the cheek
 
 2. **(1pts)** According to Micah 5:2, What is Bethlehem Ephrathah considered among the thousands of Judah?
@@ -272,6 +276,7 @@
 
 17. **(1pts)** According to Micah 5:15, I will execute vengeance in anger and fury On the nations that what?
     * have not heard
+
 ## Chapter 6
 
 1. **(4pts)** According to Micah 6:1, Fill in the blanks; "Hear now what the LORD says: "Arise, plead your ___ before the ___, And let the ___ hear your ___."
@@ -280,7 +285,7 @@
 2. **(8pts)** According to Micah 6:1, Fill in the blanks: You shall ___ but not ____; You shall tread the ______, but not anoint yourselves with ___; and make _____ ____, but not _____ ____
     * 
 
-3. **(1pts)** According to Micah 6:2, The LORD has a complaint against Isreal and He will do what with Isreal?
+3. **(1pts)** According to Micah 6:2, The LORD has a complaint against Israel and He will do what with Israel?
     * Contend 
 
 4. **(2pts)** According to Micah 6:3, What two questions does the LORD ask his people before asking them to "Testify against Me."?
@@ -330,6 +335,7 @@
 
 19. **(1pts)** According to Micah 6:16, Who's statutes are kept?
     * Omri
+
 ## Chapter 7
 
 1. **(1pts)** According to Micah 7:1, While he can gather summer fruits and glean vintage grapes, what is it which his soul desires?
