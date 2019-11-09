@@ -17,7 +17,7 @@
 }
 
 .markdown-body>ol>li>ul {
-    color: gray;
+    color: lightgray;
 	margin-bottom: 40px;
     list-style-type: disc;
     padding-left: 1em; 
