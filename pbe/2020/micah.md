@@ -50,7 +50,7 @@
 4. **(2pts)** According to Micah 1:3, The LORD is coming out of His place, what will he do?
     * He will come down And tread on the high places of the earth
 
-5. **(6pts)** According to Micah 1:4, Fill in the blanks, "The mountains will ___ under Him, And the ___ will split Like ___ before the ___, Like ___ poured down a ___ place.
+5. **(6pts)** According to Micah 1:4, Fill in the blanks, "The mountains will __________ under Him, And the __________ will split Like __________ before the __________, Like __________ poured down a __________ place.
     * Melt, valleys, wax, fire, water, steep
 
 6. **(2pts)** According to Micah 1:5, "All this" is said to be for what two things?
@@ -106,7 +106,7 @@
 1. **(2pts)** According to Micah 2:1, Woe to those who do what two things?
     * devise iniquity, And work out evil on their beds!
 
-2. **(5pts)** According to Micah 2:2, Fill in the blanks, "They covet ___ and take them by ___, Also ___, and seize them. So they oppress a man and his __, A man and his ___.
+2. **(5pts)** According to Micah 2:2, Fill in the blanks, "They covet __________ and take them by __________, Also __________, and seize them. So they oppress a man and his __________, A man and his __________.
     * Fields, violence, houses, house, inheritance 
 
 3. **(1pts)** According to Micah 2:3, Why should one not walk haughtily?
@@ -124,7 +124,7 @@
 7. **(1pts)** According to Micah 2:6, To those who prophesy you say what?
     * Do not prattle
 
-8. **(6pts)** According to Micah 2:7, Fill in the blanks, "You who are named the house of ___: "Is the ___ of the LORD ___? Are these His ___? Do not My ___ do good To him who walks ___?"
+8. **(6pts)** According to Micah 2:7, Fill in the blanks, "You who are named the house of __________: "Is the __________ of the LORD __________? Are these His __________? Do not My __________ do good To him who walks __________?"
     * Jacob, Spirit, restricted, doings, words, uprightly 
 
 9. **(1pts)** According to Micah 2:8, Lately My people have risen up as an what?
@@ -136,13 +136,13 @@
 11. **(1pts)** According to Micah 2:9, Who was cast out From their pleasant houses?
     * The women of My people
 
-12. **(5pts)** According to Micah 2:10, Fill in the blanks, "Arise and ___, For this is not your ___; Because it is ___, it shall ___, Yes, with ___ destruction.
+12. **(5pts)** According to Micah 2:10, Fill in the blanks, "Arise and __________, For this is not your __________; Because it is __________, it shall __________, Yes, with __________ destruction.
     * depart, rest, defiled, destroy, utter
 
 13. **(2pts)** According to Micah 2:11, If a man should walk in a false spirit And speak a lie, saying, "I will prophesy to you of wine and drink,' Even he would be what?
     * the prattler of this people.
 
-14. **(6pts)** According to Micah 2:12, Fill in the blanks " I will surely assemble all of you, O ___, I will surely gather the ___ of Israel; I will put them together like ___ of the ___, Like a ___ in the midst of their ___;"
+14. **(6pts)** According to Micah 2:12, Fill in the blanks " I will surely assemble all of you, O __________, I will surely gather the __________ of Israel; I will put them together like __________ of the __________, Like a __________ in the midst of their __________;"
     * Jacob, remnant, sheep, fold, flock, pasture
 
 15. **(1pts)** According to Micah 2:13, Their king will pass before them, With who at their head."
@@ -153,7 +153,7 @@
 1. **(2pts)** According to Micah 3:1, Who is told to hear now?
     * heads of Jacob, rulers of the house of Israel
 
-2. **(6pts)** According to Micah 3:2, Fill in the blanks, "You who hate ___ and love ___; Who strip the ___ from My ___, And the ___ from their ___;"
+2. **(6pts)** According to Micah 3:2, Fill in the blanks, "You who hate __________ and love __________; Who strip the __________ from My __________, And the __________ from their __________;"
     * Good, evil, skin, people, flesh, bones
 
 3. **(1pts)** According to Micah 3:3, Like meat for the pot, Like flesh in the what?
@@ -165,13 +165,13 @@
 5. **(2pts)** According to Micah 3:5, The prophets chant "Peace" While they chew with their teeth, But prepare war against who? (be specific)
     * him Who puts nothing into their mouths:
 
-6. **(6pts)** According to Micah 3:6, Fill in the blanks, "Therefore you shall have ___ without ___, And you shall have ___ without ___; The sun shall go down on the ___, And the day shall be ___ for them."
+6. **(6pts)** According to Micah 3:6, Fill in the blanks, "Therefore you shall have __________ without __________, And you shall have __________ without __________; The sun shall go down on the __________, And the day shall be __________ for them."
     * Night, vision, darkness, divination, prophets, dark
 
 7. **(1pts)** According to Micah 3:7, The seers shall be ashamed, And the diviner what?
     * abashed
 
-8. **(5pts)** According to Micah 3:8, Fill in the blanks, "But truly I am full of ___ by the Spirit of the LORD, And of ___ and ___, To declare to ___ his transgression And to Israel his ___.
+8. **(5pts)** According to Micah 3:8, Fill in the blanks, "But truly I am full of __________ by the Spirit of the LORD, And of __________ and __________, To declare to __________ his transgression And to Israel his __________.
     * Power, justice, might, Jacob, sin
 
 9. **(2pts)** According to Micah 3:9, The heads of the house of Jacob And rulers of the house of Israel, are accused of what two things?
@@ -180,22 +180,22 @@
 10. **(1pts)** According to Micah 3:10, They build up Zion with bloodshed And Jerusalem with what?
     * iniquity
 
-11. **(6pts)** According to Micah 3:12, Fill in the blanks, "Therefore because of you ___ shall be plowed like a ___, Jerusalem shall become ___ of ___, And the ___ of the temple Like the bare hills of the ___."
+11. **(6pts)** According to Micah 3:12, Fill in the blanks, "Therefore because of you __________ shall be plowed like a __________, Jerusalem shall become __________ of __________, And the __________ of the temple Like the bare hills of the __________."
     * Zion, field, heaps, ruins, mountain, forest
 
 ## Chapter 4
 
-1. **(6pts)** According to Micah 4:1, Fill in the blanks, "Now it shall come to pass in the ___ days That the ___ of the LORD's ___ Shall be established on the top of the ___, And shall be ___ above the hills; And peoples shall ___ to it.
+1. **(6pts)** According to Micah 4:1, Fill in the blanks, "Now it shall come to pass in the __________ days That the __________ of the LORD's __________ Shall be established on the top of the __________, And shall be __________ above the hills; And peoples shall __________ to it.
     * Latter, mountain, house, mountains, exalted, flow. 
 
-2. **(4pts)** According to Micah 4:2, Fill in the blanks, "For out of ___ the ___ shall go forth, And the ___ of the ___ from Jerusalem."
+2. **(4pts)** According to Micah 4:2, Fill in the blanks, "For out of __________ the __________ shall go forth, And the __________ of the __________ from Jerusalem."
     * Zion, law, word, LORD
 
 3. **(1pts)** According to Micah 4:2, Who will say "Come, and let us go up to the mountain of the LORD..  
   "? (be specific)
     * Many nations 
 
-4. **(5pts)** According to Micah 4:3, Fill in the blanks, "They shall beat their ___ into ___, And their ___ into ___ ___;"
+4. **(5pts)** According to Micah 4:3, Fill in the blanks, "They shall beat their __________ into __________, And their __________ into __________ __________;"
     * Swords, plowshares, spears, pruning hooks
 
 5. **(1pts)** According to Micah 4:3, He shall judge between many peoples, And rebuke what
@@ -210,25 +210,25 @@
 8. **(1pts)** According to Micah 4:5, All people walk each in the name of who?
     * his god 
 
-9. **(5pts)** According to Micah 4:5, Fill in the blanks, "But we will walk in the ___ of the ___ our ___ ___ and ___."
+9. **(5pts)** According to Micah 4:5, Fill in the blanks, "But we will walk in the __________ of the __________ our __________ __________ and __________."
     * name, LORD, God, forever, ever
 
 10. **(3pts)** According to Micah 4:6, "In that day," says the LORD I will assemble and gather which three groups?
     * The lame, the outcast, those whom I have afflicted
 
-11. **(6pts)** According to Micah 4:7, Fill in the blanks, "I will make the lame a ___, And the ___ a strong ___; So the LORD will ___ over them in Mount ___ From now on, even ___.
+11. **(6pts)** According to Micah 4:7, Fill in the blanks, "I will make the lame a __________, And the __________ a strong __________; So the LORD will __________ over them in Mount __________ From now on, even __________.
     * remnant, outcast, nation, reign, Zion, forever
 
 12. **(1pts)** According to Micah 4:8, The stronghold of the daughter of Zion is also described as a tower of what?
     * the flock
 
-13. **(6pts)** According to Micah 4:9, Fill in the blanks, "Now why do you ___ aloud? Is there no ___ in your midst? Has your ___ perished? For ___ have seized you like a ___ in ___.
+13. **(6pts)** According to Micah 4:9, Fill in the blanks, "Now why do you __________ aloud? Is there no __________ in your midst? Has your __________ perished? For __________ have seized you like a __________ in __________.
     * Cry, king, counselor, pangs, woman, labor 
 
 14. **(1pts)** According to Micah 4:10, From where is it that the LORD will redeem you from the hand of your enemies?
     * Babylon 
 
-15. **(5pts)** According to Micah 4:12, Fill in the blanks, "But they do not know the ___ of the LORD, Nor do they understand His ___; For He will ___ them like ___ to the ___ floor.
+15. **(5pts)** According to Micah 4:12, Fill in the blanks, "But they do not know the __________ of the LORD, Nor do they understand His __________; For He will __________ them like __________ to the __________ floor.
     * thoughts, counsel, gather, sheaves, threshing
 
 16. **(2pts)** According to Micah 4:13, Arise and thresh, O daughter of Zion; For I will make your horn and hooves of what two materials.
@@ -251,7 +251,7 @@
 5. **(1pts)** According to Micah 5:3, What will He do, "Until the time that she who is in labor has given birth"?
     * give them up
 
-6. **(7pts)** According to Micah 5:4, Fill in the blanks; "And He shall stand and ___ His ___ In the strength of the LORD, In the majesty of the ___ of the ___ His God; And they shall ___, For now He shall be ___ To the ends of the ___;"
+6. **(7pts)** According to Micah 5:4, Fill in the blanks; "And He shall stand and __________ His __________ In the strength of the LORD, In the majesty of the __________ of the __________ His God; And they shall __________, For now He shall be __________ To the ends of the __________;"
     * Feed, flock, name, LORD, abide, great, earth
 
 7. **(4pts)** According to Micah 5:5, What will they raise against the Assyrian when he comes into their land?
@@ -289,10 +289,10 @@
 
 ## Chapter 6
 
-1. **(4pts)** According to Micah 6:1, Fill in the blanks; "Hear now what the LORD says: "Arise, plead your ___ before the ___, And let the ___ hear your ___."
+1. **(4pts)** According to Micah 6:1, Fill in the blanks; "Hear now what the LORD says: "Arise, plead your __________ before the __________, And let the __________ hear your __________."
     * Case, mountains, hills, voice
 
-2. **(8pts)** According to Micah 6:1, Fill in the blanks: You shall ___ but not ____; You shall tread the ______, but not anoint yourselves with ___; and make _____ ____, but not _____ ____
+2. **(8pts)** According to Micah 6:1, Fill in the blanks: You shall __________ but not __________; You shall tread the __________, but not anoint yourselves with __________; and make __________ __________, but not __________ __________
     * 
 
 3. **(1pts)** According to Micah 6:2, The LORD has a complaint against Israel and He will do what with Israel?
@@ -307,13 +307,13 @@
 6. **(2pts)** According to Micah 6:5, Remember now What Balak king of Moab counseled, And what Balaam the son of Beor answered him, From where to where?
     * Acacia Grove to Gilgal
 
-7. **(7pts)** According to Micah 6:6, Fill in the blanks. "With what shall I __ before the ___, And ___ myself before the ___ God? Shall I come before Him with ___ ___, With ___ a year old?"
+7. **(7pts)** According to Micah 6:6, Fill in the blanks. "With what shall I __________ before the __________, And __________ myself before the __________ God? Shall I come before Him with __________ __________, With __________ a year old?"
     * Come, LORD, bow, High, burnt, offerings, calves
 
 8. **(1pts)** According to Micah 6:7, Micah asks rhetorically "Will the LORD be pleased with thousands of rams," and how much oil?
     * Ten thousand rivers of oil
 
-9. **(6pts)** According to Micah 6:8, Fill in the blanks, "He has shown you, O ___, what is ___; And what does the LORD ___ of you But to do ___, To love ___, And to ___ humbly with your God?
+9. **(6pts)** According to Micah 6:8, Fill in the blanks, "He has shown you, O __________, what is __________; And what does the LORD __________ of you But to do __________, To love __________, And to __________ humbly with your God?
     * Man, good, require, justly, mercy, walk 
 
 10. **(1pts)** According to Micah 6:9, The LORD's voice cries to the city--Wisdom shall see Your name: "Hear the" what?
@@ -337,10 +337,10 @@
 16. **(1pts)** According to Micah 6:13, ""Therefore I will also make you sick" by doing what?
     * striking you
 
-17. **(5pts)** According to Micah 6:14, Fill in the blanks. "You shall ___, but not be ___; Hunger shall be in your ___. You may ___ some away, but shall not ___ them..."
+17. **(5pts)** According to Micah 6:14, Fill in the blanks. "You shall __________, but not be __________; Hunger shall be in your __________. You may __________ some away, but shall not __________ them..."
     * Eat, satisfied, midst, carry, save
 
-18. **(8pts)** According to Micah 6:15, Fill in the blanks: You shall ___, but not ____; You shall tread the ______, but not anoint yourselves with ___; And make _____ ____, but not _____ ____.
+18. **(8pts)** According to Micah 6:15, Fill in the blanks: You shall __________, but not __________; You shall tread the __________, but not anoint yourselves with __________; And make __________ __________, but not __________ __________.
     * sow, reap, olives. oil, sweet wine, drink wine
 
 19. **(1pts)** According to Micah 6:16, Who's statutes are kept?
@@ -357,7 +357,7 @@
 3. **(1pts)** According to Micah 7:3, The prince asks for gifts, The judge seeks a bribe, And what does the great man do?
     * utters his evil desire
 
-4. **(6pts)** According to Micah 7:4, Fill in the blanks, "The best of them is like a ___; The most ___ is sharper than a ___ hedge; The day of your ___ and your ___ comes; Now shall be their ___."
+4. **(6pts)** According to Micah 7:4, Fill in the blanks, "The best of them is like a __________; The most __________ is sharper than a __________ hedge; The day of your __________ and your __________ comes; Now shall be their __________."
     * Brier, upright, thorn, watchman, punishment, perplexity
 
 5. **(1pts)** According to Micah 7:5, Who should you not put your confidence in?
@@ -366,7 +366,7 @@
 6. **(1pts)** According to Micah 7:6, Who are a man's enemies?
     * the men of his own household.
 
-7. **(6pts)** According to Micah 7:7, Fill in the blanks, "Therefore I will ___ to the ___; I will ___ for the God of my ___; My ___ will ___ me.
+7. **(6pts)** According to Micah 7:7, Fill in the blanks, "Therefore I will __________ to the __________; I will __________ for the God of my __________; My __________ will __________ me.
     * Look, LORD, wait, salvation, God, hear
 
 8. **(1pts)** According to Micah 7:8, When will "The LORD will be a light to me"?
