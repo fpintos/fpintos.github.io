@@ -23,6 +23,10 @@
     padding-left: 1em; 
     border-top: solid 1px black;
 }
+
+.footer { 
+    display:none; 
+}
 </style>
 # Micah
 
