@@ -1,11 +1,31 @@
 <style>
+.markdown-body>*:first-child {
+    display: none;
+}
+
+.markdown-body h1 {
+    margin-top: 0;
+}
+
+ol {
+    padding-left: 1em;
+}
+
+li {
+	margin-bottom: 20px;
+}
+
+ul {
+	margin-bottom: 40px;
+    list-style-type: circle;
+}
 </style>
 # Micah
 
 ## Chapter 1
 
-1. (3pts) According to Micah 1:1, The word of the LORD came to Micah during the days of which kings of Judah
-    * Jotham, Ahaz, and Hezekiah
+1. **(3pts)** According to Micah 1:1, The word of the LORD came to Micah during the days of which kings of Judah?
+   * Jotham, Ahaz, and Hezekiah
 
 2. (2pts) According to Micah 1:2, Who was told to Listen?
     * earth, and all that is in it!
